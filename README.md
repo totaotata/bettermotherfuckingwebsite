@@ -1,1 +1,2 @@
-# bettermotherfuckingwebsite
+https://totaotata.github.io/bettermotherfuckingwebsite/
+
